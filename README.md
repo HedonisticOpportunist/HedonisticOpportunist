@@ -1,7 +1,5 @@
 ### =^._.^= ∫
 
-### =^._.^= ∫
-
 - 🔭 I’m currently working on finishing my dissertation,which analyses Hiromi Goto's novels. 
 - 🌱 I’m currently learning how to write video games. 
 - 👯 I’m looking to collaborate on writing and fun programming tasks. 
