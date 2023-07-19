@@ -1,6 +1,6 @@
 ### =^._.^= ∫
 
-- 🔭 I’m currently working on finishing my dissertation in English. 
+- 🔭 I’m currently editing my dissertation on Asian Cannadin literaature. 
 - 🌱 I’m currently learning how to write video games. 
 - 👯 I’m looking to collaborate on writing and fun programming tasks. 
 - 🤔 I’m looking for help with how to code better. 
