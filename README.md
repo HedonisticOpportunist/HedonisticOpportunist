@@ -1,5 +1,4 @@
-### =^._.^= ∫ =^._.^=
-=^._.^=
+### =^._.^= ∫ =^._.^= 
 - 🐈‍⬛ I’m currently editing my dissertation on Japanese-Canadian literature. 
 - 🐈‍⬛ I’m also learning how to write video games. 
 - 🐈‍⬛ I’m looking to collaborate on fun programming tasks. 
